@@ -1,7 +1,7 @@
 нєу тнєяє,ηαмє'ѕ уυι/νєη
 
 
-This is my dear Alt check out @RunawayCar for my main github!
+This is my dear Alt!
 <img width="723" height="406" alt="7c959178d5cd5031b2cce72819f5a916" src="https://github.com/user-attachments/assets/8b2995e7-38e9-4821-9d11-2d3fa09e758e" />
 
 [strwpg](https://na-hun-bss.straw.page/)             [ata](https://na-hun.atabook.org/)  
